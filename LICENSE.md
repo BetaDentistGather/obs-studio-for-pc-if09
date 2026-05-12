@@ -1,4 +1,4 @@
-# 
+# OBS Studio for PC | OBS Studio for Windows secure Script: chat-integration & stream-scheduling offers the most advanced OBS Studio for PC | OBS Studio for Windows script, with
 
 
 
